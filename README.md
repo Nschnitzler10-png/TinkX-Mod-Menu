@@ -1,4 +1,4 @@
-Here is the complete list of all 365 mods and features in the TinkX Mod Menu, categorized tab by tab with English explanations:
+my discord pls join https://discord.gg/yKFmS9MN Here is the complete list of all 365 mods and features in the TinkX Mod Menu, categorized tab by tab with English explanations:
 
 ⚠️ 1. Important & Anti-Report (11 Mods)
 🛡️ Anti-Report (Auto Disconnect): Automatically leaves the room the instant someone touches the report button or tries to report your ID.
